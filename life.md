@@ -17,6 +17,7 @@
 - 16/07/2011 Engaged
 - 05/2010 Hit The Road @ StartupWeekendDublin
 - 01/2011-06/2011 Hit The Road @ NDRC
+- 07/2011-04/2013 Trinity College @ KDEG
 - 19/11/2013 Number 8 sold
 - 04/2013-~ ClaimVantage
 - 04/2013-~ Lived in London Baby
